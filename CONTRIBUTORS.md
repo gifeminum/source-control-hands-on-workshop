@@ -1,1 +1,1 @@
-This project is written by Babossa.
+This project is written by Babossa. Mahidol University
