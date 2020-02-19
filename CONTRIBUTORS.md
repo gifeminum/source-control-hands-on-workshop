@@ -1,1 +1,1 @@
-This project is written by Babossa. ang Gifted Sundaya
+This project is written by Babossa. and Gifted Sundaya Mahidol University
